@@ -1,5 +1,6 @@
-<img align="right" width="250" height="250" alt="luffygithub" src="https://github.com/user-attachments/assets/411e46eb-acd5-4863-b254-d03c8ec4eca2" /> 
 
+
+<img align="right" width="250" height="250" alt="luffygithub" src="https://github.com/user-attachments/assets/fb76fd49-0cf5-47fd-851d-35a3c337520b" />
 
 ㅤㅤ  
 ㅤ ㅤㅤ   ㅤ    ㅤㅤ   ☁ㅤ  @**goovons**  ㅤ◝
