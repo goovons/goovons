@@ -17,6 +17,4 @@ $\color{#e0a6d3}{\textsf{ㅤㅤ Rick + Morty}}$
 ㅤ ㅤ usually **offt**ㅤ ㅤꕀ ㅤ ㅤ📍ㅤdocksㅤ,ㅤbeach  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ  [alt acc](https://github.com/killer7even)ㅤ 
 
-ㅤㅤㅤ ㅤ   ㅤㅤㅤ ㅤ   ![](https://komarev.com/ghpvc/?username=your-github-username&color=9f74bb&label=୨୧ )  
-
 
