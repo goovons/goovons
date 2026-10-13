@@ -1,4 +1,4 @@
-<img align="right" width="300" height="300" alt="luffygithub" src="https://github.com/user-attachments/assets/411e46eb-acd5-4863-b254-d03c8ec4eca2" /> 
+<img align="right" width="250" height="250" alt="luffygithub" src="https://github.com/user-attachments/assets/411e46eb-acd5-4863-b254-d03c8ec4eca2" /> 
 
 
 ㅤㅤ  
